@@ -1,2 +1,2 @@
-# Cheese-Getting-Started
-Just a simple bit of introduction.
+# Cheese; [Getting Start]
+Just a simple bit of my introduction.
