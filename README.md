@@ -1,4 +1,4 @@
-# Cheese
+# itsbalqisofficial-code
 Hello, 👋. Thank you for reaching out to my page :3
 For any enquiries, feel free to interact me! Though if I have 'offtab' on my name, it's best to w2i (whisper to interact) until I'm online again. C+H is encouraged but please DNCUF/P, don't cover me unless friends or party members.
 
