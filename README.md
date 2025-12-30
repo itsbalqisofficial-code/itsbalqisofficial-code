@@ -6,5 +6,7 @@ My favourite genre are horror, dark psychology, something disturbing and gore. B
 SCP, Creepypasta, Doctor Nowhere's creature, Trevor Henderson's creature, Madness Combat, Mandela Catalogue, Dead by Daylight, any slasher movies, Slenderverse, FNAF,  etc.
 
 Here's the link to my other social :3 Thank you for reading and supporting ^_^
+
 <a href="https://macncheese0990.atabook.org/">MacN_Cheese0990's atabook</a>
+
 <a href="https://macncheese0990.straw.page">MacN_Cheese0990's strawpage</a>
